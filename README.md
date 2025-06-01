@@ -1,0 +1,1 @@
+# -earn100-perday
